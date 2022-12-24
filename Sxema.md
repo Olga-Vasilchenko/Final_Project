@@ -1,1 +1,0 @@
-![Cxema](Sxema.png)
